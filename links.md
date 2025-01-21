@@ -1,0 +1,2 @@
+- https://discord.com/channels/1127340805741359164/1328022848576425984
+- https://github.com/TaleLearnCode
